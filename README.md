@@ -6,10 +6,9 @@ In the vibrant world of mobile gaming, *Coin Master* has carved a niche for itse
 
 ## What is Coin Master?
 
-[✅ CLICK HERE TO GET NOW FREE LINK ✅](https://todaylink.site/Coinspins/)
+[✅ CLICK HERE TO GET NOW FREE LINK ✅](https://coinmasterfreespinslink.github.io/coinslink/)
 
-[✅ CLICK HERE TO GET NOW FREE LINK ✅](https://todaylink.site/Coinspins/)
-
+[✅ CLICK HERE TO GET NOW FREE LINK ✅](https://coinmasterfreespinslink.github.io/coinslink/)
 
 ### Overview of Coin Master
 
